@@ -1,12 +1,12 @@
 # The Conduct Code
 
-Okay, listen up. We’re not fucking around here. I want you all to learn The Conduct Code forwards, backwards and to a beat. Oh, you bet there’s going to be a quiz.
+Okay, listen up. We’re not fucking around here. I want you all to learn The Conduct Code forwards, backwards, and to a beat. Oh, you bet there’s going to be a quiz.
 
 First Rule. There are rules.
 
 Second Rule. Be COOL about this.
 
-By becoming a member of the Crows Crows Crows Discord server, you agree to abide by The Conduct Code, and cooperate with the Discord police who enforce it.
+By becoming a member of the Crows Crows Crows Discord server, you agree to abide by The Conduct Code, and cooperate with the Discord Police who enforce it.
 
 We‭ ‬are‭ ‬committed‭ ‬to‭ ‬providing‭ ‬a‭ ‬friendly,‭ ‬safe,‭ ‬and‭ generally chill place to hang ‬for‭ ‬all,‭ ‬regardless‭ ‬of‭ ‬gender,‭ gender identity, ‬sexual‭ ‬orientation,‭ ‬ability,‭ ‬ethnicity,‭ ‬socioeconomic‭ ‬status,‭ ‬and‭ ‬religion‭ (‬or‭ ‬lack‭ ‬thereof‭)‬.‭
  
@@ -36,6 +36,6 @@ Unacceptable behaviors include: intimidating, harassing, abusive, discriminatory
 
 Misbehavior from any community member will not be tolerated. Anyone asked to stop misbehaving is expected to comply immediately.
 
-If a community member engages in misbehavior, the community Discord police may take any action they deem appropriate, up to and including a temporary ban or permanent expulsion from the community without warning.
+If a community member engages in misbehavior, the community Discord Police may take any action they deem appropriate, up to and including a temporary ban or permanent expulsion from the community without warning.
 
 We want to be making games, not moderating you kids, so don’t waste our time by fuckin’ about. We are well meaning (but really, really vengeful) gods.
