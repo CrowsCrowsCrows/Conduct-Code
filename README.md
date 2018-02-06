@@ -10,7 +10,7 @@ By becoming a member of the Crows Crows Crows Discord server, you agree to abide
 
 We‭ ‬are‭ ‬committed‭ ‬to‭ ‬providing‭ ‬a‭ ‬friendly,‭ ‬safe,‭ ‬and‭ generally chill place to hang ‬for‭ ‬all,‭ ‬regardless‭ ‬of‭ ‬gender,‭ gender identity, ‬sexual‭ ‬orientation,‭ ‬ability,‭ ‬ethnicity,‭ ‬socioeconomic‭ ‬status,‭ ‬and‭ ‬religion‭ (‬or‭ ‬lack‭ ‬thereof‭)‬.‭
  
-The Conduct Code is sacred. We’re gonna be a whole fucking cult up in here, and I want robes and chanting, and you all to self enforce.
+The Conduct Code is sacred. We’re gonna be a whole fucking cult up in here, and we want robes and chanting, and you all to self enforce.
  
 ## Do this, okay?
 
